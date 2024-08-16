@@ -1,2 +1,4 @@
 # hey_you
-just testing
+I like going for walks. 
+Uno is my new pet.
+Bryan is my bf.
